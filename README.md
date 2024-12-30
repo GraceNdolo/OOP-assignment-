@@ -7,3 +7,5 @@ Mitchelle Wairimu-HDB212-0360/2023
 Benaiah Mwendwa-HDB212-0341/2023
 Maxwell Karanja-HDB212-0383/2023
 Eric Githugi-HDB212-0339/2023
+Raymond Oluoch-HDB212-3029/2024
+(GROUP 9L)
